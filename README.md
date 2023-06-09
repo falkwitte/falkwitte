@@ -1,1 +1,1 @@
-just a curious student, who likes to learn, build and code stuff.
+just a curious hacker who likes to build, code and break stuff.
