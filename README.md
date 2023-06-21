@@ -1,1 +1,1 @@
-just a curious hacker who likes to build, code and break stuff.
+just a curious human who likes to build, code and break stuff.
